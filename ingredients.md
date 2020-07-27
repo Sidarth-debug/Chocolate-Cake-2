@@ -1,4 +1,4 @@
-2 cups all-purpose flour
+2 cups  all-purpose flour
 2 cups sugar
 3/4 cup unsweetened cocoa powder
 2 teaspoons baking powder
